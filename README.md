@@ -1,0 +1,2 @@
+# yoo
+semoga ga stres
